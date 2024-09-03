@@ -1,1 +1,1 @@
-# Practic-for-Herzen-2024-2025
+# Practic-for-Herzen-2024/2025
